@@ -1,1 +1,1 @@
-https://www.figma.com/proto/P1B1zitbonUjjTLGZ3gLWP/LP-de-produto-(Community)?node-id=3-811&starting-point-node-id=3%3A811&t=WCzhyHrs8NOrCqUH-1
+![💻](https://github.com/user-attachments/assets/7bdd8b98-55a9-4547-ab0d-76e8c2003238)
